@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+
+![429474843_1739477303242000_7666403664294024930_n](https://github.com/KacWNK/KacWNK/assets/65176581/76301331-a10b-417a-8eba-d5b1849f64a6)
 <!--
 **KacWNK/KacWNK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
